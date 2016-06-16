@@ -1,4 +1,4 @@
 # hello-world
 THIS IS MY FIRST REPOSITORY
 Hey I'm on Github
-I want to go home and relax a bit
+I AM DA ÄSCHT PROGRAMMER ON DA WORLD AND MY ENGLISH SKILLZ ARE ALSO GOOD
